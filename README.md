@@ -1,2 +1,1 @@
-# Lakshmi Snehitha
-#Hi there 👋🏻
+# Hi there 👋🏻
